@@ -67,9 +67,9 @@
 
 ## December 28, 2026: [New York String Orchestra](https://www.carnegiehall.org/Calendar/2026/12/28/New-York-String-Orchestra-0800PM)
 - J. STRAUSS JR. Overture to Die Fledermaus
-- BEETHOVEN Piano Concerto No. 4
+- ⭐ BEETHOVEN Piano Concerto No. 4
 - VALERIE COLEMAN Umoja
-- STRAVINSKY The Firebird Suite (1919 version)
+- ⭐ STRAVINSKY The Firebird Suite (1919 version)
 
 ## January 19, 2027: [The Cleveland Orchestra](https://www.carnegiehall.org/Calendar/2027/01/19/The-Cleveland-Orchestra-0800PM)
 - BEETHOVEN Missa solemnis
