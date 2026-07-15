@@ -1,6 +1,8 @@
 # Carnegie Hall Presents: 2026–2027 Concerts  
+🤟 Means I am definitely going. Open to going tto all of these. 
 
-## October 9, 2026: [Berliner Philharmoniker](https://www.carnegiehall.org/Calendar/2026/10/09/Berliner-Philharmoniker-0800PM)
+
+## 🤟 October 9, 2026: [Berliner Philharmoniker](https://www.carnegiehall.org/Calendar/2026/10/09/Berliner-Philharmoniker-0800PM)
 - BRAHMS Piano Concerto No. 1
 - ⭐⭐⭐ R. STRAUSS Also sprach Zarathustra
 
@@ -12,12 +14,12 @@
 - BRAHMS Piano Concerto No. 1
 - ⭐⭐⭐ R. STRAUSS Also sprach Zarathustra
 
-## October 13, 2026: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2026/10/13/The-Philadelphia-Orchestra-0730PM)
+## 🤟 October 13, 2026: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2026/10/13/The-Philadelphia-Orchestra-0730PM)
 - WEBERN Im Sommerwind
 - JULIA WOLFE Liberty Bell (NY Premiere, co-commissioned by Carnegie Hall)
 - ⭐⭐⭐ G. MAHLER Symphony No. 5
 
-## October 21, 2026: [Yunchan Lim, Piano](https://www.carnegiehall.org/Calendar/2026/10/21/Yunchan-Lim-Piano-0800PM)
+## 🤟 October 21, 2026: [Yunchan Lim, Piano](https://www.carnegiehall.org/Calendar/2026/10/21/Yunchan-Lim-Piano-0800PM)
 - Piano Sonata in C Major, K. 279
 - Piano Sonata in D Major, K. 284
 - Fantasy in D Minor, K. 397
@@ -29,7 +31,7 @@
 - JANÁČEK String Quartet No. 2, "Intimate Letters"
 - ⭐⭐SCHUBERT String Quartet in D Minor, D. 810, "Death and the Maiden" (arr. for string orchestra by G. Mahler)
 
-## November 5, 2026: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2026/11/05/Orchestra-of-St-Lukes-0800PM)
+## 🤟 November 5, 2026: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2026/11/05/Orchestra-of-St-Lukes-0800PM)
 - BERLIOZ Overture to Les francs-juges
 - BERLIOZ Les nuits d'été
 - ⭐⭐ BERLIOZ Symphonie fantastique
@@ -38,16 +40,13 @@
 - ⭐ BRAHMS Piano Concerto No. 2
 - BRAHMS Symphony No. 2
 
-## December 7, 2026: [Leslie Odom, Jr.](https://www.carnegiehall.org/Calendar/2026/12/07/Leslie-Odom-Jr-0800PM)
-- Seasonal classics and original songs
-
 ## December 8, 2026: [Ariel Quartet](https://www.carnegiehall.org/Calendar/2026/12/08/Ariel-Quartet-0730PM)
 - HAYDN String Quartet in C Major, Op. 33, No. 3, "The Bird"
 - BERG String Quartet, Op. 3
 - CAROLINE SHAW Blueprint
 - BRAHMS String Quartet No. 1
 
-## December 12, 2026: [Daniil Trifonov, Piano](https://www.carnegiehall.org/Calendar/2026/12/12/Daniil-Trifonov-Piano-0800PM)
+## 🤟 December 12, 2026: [Daniil Trifonov, Piano](https://www.carnegiehall.org/Calendar/2026/12/12/Daniil-Trifonov-Piano-0800PM)
 - HANDEL Suite No. 5 in E Major, HWV 430
 - STRAVINSKY Piano Sonata (1924)
 - ⭐ SCHUBERT Fantasy in C Major
@@ -58,14 +57,13 @@
 - MOZART Piano Sonata in B-flat Major, K. 333, “Linz”
 - MOZART Piano Sonata in A Major, K. 331
 
-
 ## December 24, 2026: [New York String Orchestra](https://www.carnegiehall.org/Calendar/2026/12/24/New-York-String-Orchestra-0700PM)
 - BEETHOVEN Overture to Die Geschöpfe des Prometheus
 - VAUGHAN WILLIAMS Fantasia on a Theme by Thomas Tallis
 - BARBER Violin Concerto
 - BEETHOVEN Symphony No. 8
 
-## December 28, 2026: [New York String Orchestra](https://www.carnegiehall.org/Calendar/2026/12/28/New-York-String-Orchestra-0800PM)
+## 🤟 December 28, 2026: [New York String Orchestra](https://www.carnegiehall.org/Calendar/2026/12/28/New-York-String-Orchestra-0800PM)
 - J. STRAUSS JR. Overture to Die Fledermaus
 - ⭐ BEETHOVEN Piano Concerto No. 4
 - VALERIE COLEMAN Umoja
@@ -83,12 +81,12 @@
 - STRAUSS Metamorphosen: A Study for 23 Strings
 - STRAUSS Symphonia domestica
 
-## January 21, 2027: [The Met Orchestra Chamber Ensemble](https://www.carnegiehall.org/Calendar/2027/01/21/The-Met-Orchestra-Chamber-Ensemble-0730PM)
+## 🤟 January 21, 2027: [The Met Orchestra Chamber Ensemble](https://www.carnegiehall.org/Calendar/2027/01/21/The-Met-Orchestra-Chamber-Ensemble-0730PM)
 - DEBUSSY Sonata for Flute, Viola, and Harp
 - POULENC Suite française
 - MESSIAEN Quatuor pour la fin du temps
 
-## January 27, 2027: [Lukas Sternath, Piano](https://www.carnegiehall.org/Calendar/2027/01/27/Lukas-Sternath-Piano-0730PM)
+## 🤟 January 27, 2027: [Lukas Sternath, Piano](https://www.carnegiehall.org/Calendar/2027/01/27/Lukas-Sternath-Piano-0730PM)
 - LISZT "Der Wanderer" from 12 Lieder von Franz Schubert
 - LISZT "Frühlingsglaube" from 12 Lieder von Franz Schubert
 - LISZT "Auf dem Wasser zu singen" from 12 Lieder von Franz Schubert
@@ -97,7 +95,7 @@
 - ⭐ SCHUBERT Fantasy in C Major, D. 760, "Wanderer Fantasy"
 - ⭐⭐ LISZT Années de pèlerinage, deuxième année: Italie
 
-## February 2, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/02/02/The-Philadelphia-Orchestra-0730PM)
+## 🤟 February 2, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/02/02/The-Philadelphia-Orchestra-0730PM)
 - JOHN ADAMS Harmonielehre
 - ⭐ DEBUSSY La mer
 - ⭐⭐ RAVEL Daphnis et Chloé Suite No. 2
@@ -125,11 +123,11 @@
 - SCHUBERT Mass no.2
 - MOZART Requiem
 
-## February 19, 2027: [Munich Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/19/Munich-Philharmonic-0800PM)
+## 🤟 February 19, 2027: [Munich Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/19/Munich-Philharmonic-0800PM)
 - ⭐⭐ BRAHMS Violin Concerto (MUTTER)
 - ⭐ BRUCKNER Symphony No. 4, "Romantic"
 
-## February 20, 2027: [Munich Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/20/Munich-Philharmonic-0800PM)
+## 🤟 February 20, 2027: [Munich Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/20/Munich-Philharmonic-0800PM)
 - PROKOFIEV Symphony No. 1, "Classical"
 - SHOSTAKOVICH Piano Concerto No. 2
 - ⭐ SCHUBERT Symphony No. 9, "Great"
@@ -144,14 +142,14 @@
 ## February 24, 2027: [Jack Swanson, Tenor / Bryan Wagorn, Piano](https://www.carnegiehall.org/Calendar/2027/02/24/Jack-Swanson-Tenor-Bryan-Wagorn-Piano-0730PM)
 - Songs by R. Schumann, Rossini, and Liszt
 
-## February 26, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/26/Vienna-Philharmonic-0800PM)
+## 🤟 February 26, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/26/Vienna-Philharmonic-0800PM)
 - ⭐⭐⭐ G. MAHLER Symphony No. 9
 
-## February 27, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/27/Vienna-Philharmonic-0800PM)
+## 🤟 February 27, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/27/Vienna-Philharmonic-0800PM)
 - ⭐ PROKOFIEV Piano Concerto No. 3
 - ⭐ G. MAHLER Symphony No. 4
 
-## February 28, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/28/Vienna-Philharmonic-0200PM)
+## 🤟 February 28, 2027: [Vienna Philharmonic](https://www.carnegiehall.org/Calendar/2027/02/28/Vienna-Philharmonic-0200PM)
 - ⭐⭐⭐⭐ G. MAHLER Symphony No. 2, "Resurrection"
 
 ## February 28, 2027: [Nadine Sierra, Soprano / Bryan Wagorn, Piano](https://www.carnegiehall.org/Calendar/2027/02/28/Nadine-Sierra-Soprano-Bryan-Wagorn-Piano-0300PM)
@@ -169,7 +167,7 @@
 - TURINA Homenaje a Lope de Vega
 - NIETO / GIMÉNEZ "Me llaman la primorosa" from El barbero de Sevilla
 
-## March 11, 2027: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2027/03/11/Orchestra-of-St-Lukes-0800PM)
+## 🤟 March 11, 2027: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2027/03/11/Orchestra-of-St-Lukes-0800PM)
 - ALL-BEETHOVEN PROGRAM
 - ⭐ Piano Concerto No. 3
 - ⭐⭐⭐ Symphony No. 3, "Eroica"
@@ -188,7 +186,7 @@
 - MOZART Fantasia in C Minor, K. 396 (completed by Stadler)
 - PROKOFIEV Piano Sonata No. 8 in B-flat Major, Op. 84
 
-## March 13, 2027: [London Symphony Orchestra](https://www.carnegiehall.org/Calendar/2027/03/13/London-Symphony-Orchestra-0800PM)
+## 🤟 March 13, 2027: [London Symphony Orchestra](https://www.carnegiehall.org/Calendar/2027/03/13/London-Symphony-Orchestra-0800PM)
 - ⭐ BEETHOVEN Violin Concerto
 - SHOSTAKOVICH Symphony No. 8
 
@@ -235,14 +233,14 @@
 -  Fantasia in C Minor, K. 475
 -  Piano Sonata in C Minor, K. 457
 
-## April 2, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/04/02/The-Philadelphia-Orchestra-0730PM)
+## 🤟 April 2, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/04/02/The-Philadelphia-Orchestra-0730PM)
 - MAHLER Symphony No. 7
 
 ## April 2, 2027: [Quatuor Ébène](https://www.carnegiehall.org/Calendar/2027/04/02/Quatuor-Ebene-0730PM)
 - BEETHOVEN String Quartet Op 18 No. 4,5
 - BEETHOVEN String Quartet in Eb major, Op.127
 
-## April 4, 2027: [Quatuor Ébène](https://www.carnegiehall.org/Calendar/2027/04/04/Quatuor-Ebene-0300PM)
+## 🤟 April 4, 2027: [Quatuor Ébène](https://www.carnegiehall.org/Calendar/2027/04/04/Quatuor-Ebene-0300PM)
 - BEETHOVEN Razumovsky quartet
 - ⭐ BEETHOVEN Op.130 with grosse fuge
 
@@ -255,7 +253,7 @@
 - Violin Concerto No. 2
 - Symphony No. 5
 
-## April 14, 2027: [Boston Symphony Orchestra](https://www.carnegiehall.org/Calendar/2027/04/14/Boston-Symphony-Orchestra-0800PM)
+## 🤟 April 14, 2027: [Boston Symphony Orchestra](https://www.carnegiehall.org/Calendar/2027/04/14/Boston-Symphony-Orchestra-0800PM)
 - ⭐⭐ ELGAR Cello Concerto
 - R. STRAUSS Eine Alpensinfonie
 
@@ -268,7 +266,7 @@
 ## April 25, 2027: [Maxim Vengerov, Violin / Martha Argerich, Piano](https://www.carnegiehall.org/Calendar/2027/04/25/Maxim-Vengerov-Violin-Martha-Argerich-Piano-0800PM)
 - BEETHOVEN sonatas, not announced
 
-## April 27, 2027: [Piotr Anderszewski, Piano](https://www.carnegiehall.org/Calendar/2027/04/27/Piotr-Anderszewski-Piano-0730PM)
+## 🤟 April 27, 2027: [Piotr Anderszewski, Piano](https://www.carnegiehall.org/Calendar/2027/04/27/Piotr-Anderszewski-Piano-0730PM)
 -  BRAHMS Selections from Klavierstücke, Op. 119
 -  BRAHMS Selections from Klavierstücke, Op. 118
 -  BRAHMS Selections from Seven Fantasies, Op. 116
@@ -288,7 +286,7 @@
 -  Piano Sonata in B-flat Major, K. 570
 -  Piano Sonata in D Major, K. 576
 
-## May 18, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/05/18/The-Philadelphia-Orchestra-0730PM)
+## 🤟 May 18, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/05/18/The-Philadelphia-Orchestra-0730PM)
 - ⭐⭐ MAHLER symphony 3
 
 ## May 21, 2027: [Joyce DiDonato Master Class](https://www.carnegiehall.org/Calendar/2027/05/21/Joyce-DiDonato-Master-Class-0400PM)
@@ -300,7 +298,7 @@
 ## June 1, 2027: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2027/06/01/Orchestra-of-St-Lukes-0700PM)
 - J. S. BACH Keyboard Concerto in E Major, BWV 1053
 
-## June 4, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/06/04/The-Philadelphia-Orchestra-0730PM)
+## 🤟 June 4, 2027: [The Philadelphia Orchestra](https://www.carnegiehall.org/Calendar/2027/06/04/The-Philadelphia-Orchestra-0730PM)
 - ⭐⭐⭐ MAHLER 1
 
 ## June 8, 2027: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2027/06/08/Orchestra-of-St-Lukes-0700PM)
@@ -309,7 +307,7 @@
 ## June 10, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/10/The-Met-Orchestra-0700PM)
 - ⭐⭐ MAHLER 8
 
-## June 11, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/11/The-Met-Orchestra-0700PM)
+## 🤟 June 11, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/11/The-Met-Orchestra-0700PM)
 - ⭐⭐ MAHLER 8
 
 ## June 12, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/12/The-Met-Orchestra-0100PM)
@@ -318,6 +316,6 @@
 ## June 15, 2027: [Orchestra of St. Luke's](https://www.carnegiehall.org/Calendar/2027/06/15/Orchestra-of-St-Lukes-0700PM)
 - ⭐ BACH Brandenbergs + concerto for 2 violins
 
-## June 18, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/18/The-Met-Orchestra-0800PM)
+## 🤟 June 18, 2027: [The Met Orchestra](https://www.carnegiehall.org/Calendar/2027/06/18/The-Met-Orchestra-0800PM)
 - ⭐⭐⭐⭐ MAHLER 6
 
